@@ -1,4 +1,4 @@
-#  
+#  advanced Scripts for jujutsu infinite offers the most advanced jujutsu infinite Script, with aimbot and custom skins. Perfect for dominating any
 
 
 
